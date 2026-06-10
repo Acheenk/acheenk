@@ -1,5 +1,5 @@
 ## Hi There! 👋
-My name is Ridho, but people call me Acheenk 😒. Just a random gamer who like to modify something.
+Just call me Acheenk. I'm just a random Gamer that have an enthusiast at Cinematography and Photography... why am i here anyway?
 
 this what i look like in person 👇
 ![Hikigaya Hachiman](https://miro.medium.com/v2/resize:fit:1200/1*gHlLEEVbh3lB-WbDOrCvlQ.jpeg)
